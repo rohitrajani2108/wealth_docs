@@ -17,6 +17,7 @@
 7. [₹10 Lakhs Yearly Strategy](#10-lakhs-yearly-strategy)
 8. [Tax Optimization Strategies](#tax-optimization-strategies)
 9. [Important Advisor Notes](#important-advisor-notes)
+10. [Quick Reference Card](#quick-reference-card)
 
 ---
 
